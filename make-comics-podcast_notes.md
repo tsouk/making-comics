@@ -33,8 +33,6 @@ Greek ταβερνα τραπεζομάντηλο χάρτινο.
 Cycladic art, faces & idols, Piper.
 Φλαρος, greek pottery.
 Give them your thing, always get their contact, then email back and remind them.
-- Gosh, Unbound, Self Made Hero
-
 
 ## Acts
 4-5 issues for a trade paperback
@@ -64,6 +62,7 @@ Tom Strong ,alan Moore
 - How good the execution is
 - does it fill a hole?
 - The hook and the premise.
+- Gosh?, [Unbound](https://unbound.com/books?tags=Comics), [Self Made Hero](http://selfmadehero.com/submissions.php)
 
 
 ## Iland notes:
