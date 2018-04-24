@@ -21,13 +21,6 @@ Some writes write all dialogue first, some interleave.
 Camera direction- usually writes don't visualise how 6 panels with camera angles will look together. Good to let your artists choose. Let them be the expert. 6 panels. 9 panels has it's own thing. 7 is more digit than 8 or 9.
 Mechanics of the page.
 
-Comic twart, Twitter, daily sketch challenges
-Inktober
-They are getting better because they are challenging themselves.
-Uncanny X-Men 205
-Planetary
-Tom Strong ,alan Moore
-
 ## Portfolio
 variety, they want to know that if they give it to someone who had never read comics they will get it. Not the same angles all the time.
 
@@ -39,6 +32,9 @@ Have a book. Test selling? Smaller con
 Greek ταβερνα τραπεζομάντηλο χάρτινο.
 Cycladic art, faces & idols, Piper.
 Φλαρος, greek pottery.
+Give them your thing, always get their contact, then email back and remind them.
+- Gosh, Unbound, Self Made Hero
+
 
 ## Acts
 4-5 issues for a trade paperback
@@ -52,8 +48,16 @@ Be proud of all the work that you do, even if it is a miserable failure, artisti
 What works well, what doesn't.
 Understand what's working and what's not..
 
+
 _"it's easy to break in to comics. You know what is difficult to break into? Medicine ( Engineering )"_
 Brian Michael Bendis
+
+Comic twart, Twitter, daily sketch challenges
+Inktober
+They are getting better because they are challenging themselves.
+Uncanny X-Men 205
+Planetary
+Tom Strong ,alan Moore
 
 ## Publishing:
 - How is it marketable
